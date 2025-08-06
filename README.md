@@ -31,5 +31,5 @@ Others: `Canva` • `Miro` • `Gen AI`
 
 If you're working on data-backed decisions, product growth, or analytical systems, I'd love to collaborate.
 
-[📧 Email](mailto:pralladshetty@gmail.com) • [🔗 LinkedIn](https://www.linkedin.com/in/pralladshettyk)
+[📧 Email](mailto:pralladshetty@gmail.com) • [🔗 LinkedIn](https://www.linkedin.com/in/pralladshettyk/)
 
